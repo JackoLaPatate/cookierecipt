@@ -8,5 +8,5 @@
 - Enfourner pour 10 minutes de cuisson.
 - Dresser le plat
 
-Bon app !
+Bon app ! Et salut !
 
